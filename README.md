@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LexFay333
+- 👀 I’m interested in learning new skills
+- 🌱 I’m currently learning cybersecurity 
